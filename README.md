@@ -4,7 +4,7 @@
 - 👨‍💻 经历：暂无完成
 - 🏡 作品：暂无
 - 🌱 干货：<a href="https://i.ibb.co/M8ZXKcv/image.png" target="_blank">公众号『 侠客明 』</a>
-- 📽️ 视频：<a href="https://www.douyin.com/user/MS4wLjABAAAAYqUmmAUJ5Nl7J4hWZcmhMGqUUuiqktB_OCWhGTQXOLtIJgzg0hcr0wgPkx3-Bkqs" target="_blank">抖音 侠客明</a>
+- 📽️ 视频：<a href="https://s2.loli.net/2023/05/12/ufrtFwZMkq3NpJA.png" target="_blank">抖音 侠客明</a>
 
 
 ## 今年汇总 ✨
